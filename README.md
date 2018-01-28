@@ -1,0 +1,2 @@
+# TypicMusicBot
+Fuck you nigger
